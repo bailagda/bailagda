@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ksu @bailagda 
-- ✨ 21 school student
+- ✨ 21 school student (w14)
 - 📫 my tg t.me/bailagda
 
 <!---
